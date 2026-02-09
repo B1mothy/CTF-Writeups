@@ -1,0 +1,7 @@
+The Description: A towering form bends the skyline, its reflection once blamed for an unexpected scorch. Its name is rarely spoken only its shape remembered. Ownership changed hands to one with a taste for tradition. High above, nature hides behind glass. Find out the place where temperature peaked which burned and destroyed things nearby.
+
+With a little bit of googling I was pointed to this building 'https://maps.app.goo.gl/HBjUxYL8PQcMx5UX9'(The Fenchurch Building (The Walkie-Talkie). This fits all the criteria, reflections from it caused significant damages to surrounding buildings and cars, a new group recently took it over, and it has a garden on the top. So obviously I try submitting there, many many tries late I come to realize its not that building itself. So I ended up going down a rabbit hole looking for other buildings that fit the criteria, long story short there weren't any which turned my attention back to The Fenchurch Building (The Walkie-Talkie).
+
+After taking a deep long look at the challenge description I noticed this, "Find out the place where temperature peaked which burned and destroyed things nearby." hmm so maybe we aren't looking for the building itself but where other places got damaged by it.
+
+With this information I come across a barber shop whos carpet was burnt due to the reflection of the building, this barber shop was located on '20 Eastcheap' which I believe is 'R.W.WOLF Barbers Monument'. So I try here, BANG!
